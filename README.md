@@ -1,2 +1,2 @@
-f*ck u|?
+Hello, how are u?
 Holo
